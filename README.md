@@ -1,6 +1,1 @@
 # coding
-dfkkkgkkgkgkkgkkgr
-kekgkkkgkkgkkgkgkg
-kkkkkgkkbk
-gkrkg
-vkkvkkvkkkkvkbk
